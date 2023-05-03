@@ -1,4 +1,4 @@
-# 💫 ### Hi, I'm Seungho 👋
+# Hi, I'm Seungho 👋
 University of Iowa<br>BBA Business Analytics and Information Systems
 
 
